@@ -2,7 +2,7 @@
 - 👀 I’m interested in web and app development
 - 🌱 I’m currently exploring my capabilities in the coding space
 - 💞️ I’m looking to collaborate on software developement projects
-- 📫 How to reach me : ngidisthelo@gmail
+- 📫 How to reach me : ngidisthelo@gmail.com
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: I am twin and ive been in the project management & marketing space....I love ice cream and pasta😭
 
